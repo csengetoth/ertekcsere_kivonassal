@@ -1,0 +1,1 @@
+# ertekcsere_kivonassal
